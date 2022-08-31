@@ -3,7 +3,7 @@
 - Lesya Afriani
 - Mochammad Raffa Gibran 
 - Nur Intan Fadhillah
-- Syaibah Putri
+- Putri Wandayani
 
 ## Frequently Asked Question
 
