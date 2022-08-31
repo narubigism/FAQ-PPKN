@@ -1,3 +1,10 @@
+## Kelompok 1
+- Amelinda Kustari
+- Lesya Afriani
+- Mochammad Raffa Gibran 
+- Nur Intan Fadhillah
+- Syaibah Putri
+
 ## Frequently Asked Question
 
 **MPR dipilih melalui?**
